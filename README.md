@@ -1,0 +1,1 @@
+# Patika-Veri-Analizi-Hafta5-
